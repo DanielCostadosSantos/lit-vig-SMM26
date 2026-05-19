@@ -1,1 +1,0 @@
-# lit-vig-SMM26
